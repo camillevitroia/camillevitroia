@@ -15,9 +15,9 @@
 ---
 Criei esse perfil para fazer atividades referentes ao meu curso, que às vezes gosto muito e outras vezes nem tanto... mas na maioria das vezes acho interessante! Espero que através desse site eu possa ter ótimas experiências
 
-##**CONTATO|**
-[__e-mail__](camillev.carvalho@gmail.com)
-[twitter](twitter.com)
-[instagram](instagram.com)
+##**CONTATO**
+-[__e-mail__](camillev.carvalho@gmail.com)
+-[twitter](twitter.com)
+-[instagram](instagram.com)
 ---
 ![Alt Text](https://media.giphy.com/media/Diym3aZO1dHzO/giphy.gif)
