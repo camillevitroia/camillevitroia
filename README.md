@@ -1,17 +1,23 @@
-### oiiii 👋
+#**BEM VINDO AO MEU PERFIL!!!**
+---
+##**Olá!**
+🥁 Me chamo **Camille**, tenho 16 anos, meus pronomes são `**Ela/Dela**`, falo pt-br e sou estudante da turma 423 (**Técnico em Infomática para Internet**) do Colégio Técnico Industrial de Santa Maria.
+---
+![Alt Text](https://64.media.tumblr.com/1a9732a0496b8f685e50581ecd5f0e73/tumblr_p7ig0v1Nun1wn2b96o1_500.gif)
+---
+        ##**camilleverso ♡_♡:**
+- 🦆 história
+- 🐱‍👤 ~~kpop~~
+- 🪐 literatura brasileira
+- 🌹 rei ayanami
+- 🐱‍👓 japanese breakfast (banda)
+- 🛒 `mpb`
+---
+Criei esse perfil para fazer atividades referentes ao meu curso, que às vezes gosto muito e outras vezes nem tanto... mas na maioria das vezes acho interessante! Espero que através desse site eu possa ter ótimas experiências
 
-**camillevitroia/camillevitroia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on estudando
-- 🌱 I’m currently learning informática
-- 👯 I’m looking to collaborate on ...
-- 👯 I’m looking to collaborate on passar de ano
-- 🤔 I’m looking for help with passar de ano
-- 💬 Ask me about nada
-- 📫 How to reach me: camillev.carvalho@gmail.com
-- 😄 Pronouns: ela/dela
-- ⚡ Fun fact: não sei nada de informática no geral 
--->
-- ⚡ Fun fact: não sei nada de informática no geral *-
+##**CONTATO|**
+[__e-mail__](camillev.carvalho@gmail.com)
+[twitter](twitter.com)
+[instagram](instagram.com)
+---
+![Alt Text](https://media.giphy.com/media/Diym3aZO1dHzO/giphy.gif)
