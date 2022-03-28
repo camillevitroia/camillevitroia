@@ -12,9 +12,9 @@
 - 🐱‍👤 ~~kpop~~
 - 🪐 literatura brasileira
 - 🌹 rei ayanami
-- 🐱‍👓 japanese breakfast (banda)
+- 🐱‍👓 fiona apple
 - 🛒 `mpb`
-- 🦦 tyler, the creator
+- 🦦 ~~britpop~~
 ---
 Criei esse perfil para fazer atividades referentes ao meu curso, que às vezes gosto muito e outras vezes nem tanto... mas na maioria das vezes acho interessante! Espero que através desse site eu possa ter ótimas experiências
 
