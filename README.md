@@ -6,7 +6,7 @@
 
 - Não gosto muito de informática porém me interesso por front end!! (^-^)
 ---
-##camillecore
+## camillecore
 - 🦆 história
 - 🐱‍👤 kpop
 - 🪐 literatura brasileira
@@ -15,7 +15,7 @@
 - 🦦 britpop
 
 ---
-##**CONTATO**
+## **CONTATO**
 - [__e-mail__](camillev.carvalho@gmail.com)
 - [twitter](twitter.com)
 - [instagram](instagram.com)
