@@ -1,23 +1,20 @@
-#**BEM VINDOS AO MEU PERFIL!!!**
+# **Oi!!!**
 ---
 - Camille
 - 17 anos
-- pt-br
-- Info - CTISM
+- Info - CTISM | 433/2022
+
+- Não gosto muito de informática porém me interesso por front end!! (^-^)
 ---
-![Alt Text](https://64.media.tumblr.com/1a9732a0496b8f685e50581ecd5f0e73/tumblr_p7ig0v1Nun1wn2b96o1_500.gif)
----
-        ##**camilleverso ♡_♡:**
+##camillecore
 - 🦆 história
-- 🐱‍👤 ~~kpop~~
+- 🐱‍👤 kpop
 - 🪐 literatura brasileira
 - 🌹 rei ayanami
 - 🐱‍👓 fiona apple
-- 🛒 `mpb`
-- 🦦 ~~britpop~~
----
-Criei esse perfil para fazer atividades referentes ao meu curso, que às vezes gosto muito e outras vezes nem tanto... mas na maioria das vezes acho interessante! Espero que através desse site eu possa ter ótimas experiências
+- 🦦 britpop
 
+---
 ##**CONTATO**
 - [__e-mail__](camillev.carvalho@gmail.com)
 - [twitter](twitter.com)
